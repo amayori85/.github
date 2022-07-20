@@ -12,21 +12,14 @@
                           ✿————✦————✿
 
 - 🌐 NBT/Minecraft Community
-
 - 👥 1K+ Members
-
 - 👥 Nice Staff
-
- - 🎉 Giveaways
-
+- 🎉 Giveaways
 - 📄 Applications
-
 - 📑 100 + Roles
-
 - 🔰 Safe Server
-
 - 🤖 Fun Bots
-
 - ⛏️ Toolbox/Horion Supported
-
 - 🎟️ Ticket (24/7 online support Free included)
+- 💌 Partnership Open
+- 💞 Partnered With Official [Toolbox discord server](https://discord.gg/toolbox)
